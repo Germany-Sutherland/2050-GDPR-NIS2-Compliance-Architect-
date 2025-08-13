@@ -1,0 +1,1 @@
+# 2050-GDPR-NIS2-Compliance-Architect-
